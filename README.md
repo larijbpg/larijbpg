@@ -1,4 +1,4 @@
-# 👋 Olá, sou a @larijbpg!
+# 👋 Olá, sou a Larissa!
 
 Biomédica | Vigilância Epidemiológica, Diagnóstico Molecular, Biotecnologia & Bioinformática em Formação
 
